@@ -1,4 +1,4 @@
-# How to Save a Marriage in Crisis (What to Do When Your Marriage Is Crumbling?)**
+# How to Save a Marriage in Crisis (What to Do When Your Marriage Is Crumbling?)
 
 There is a moment many couples reach where everything feels like it is falling apart at once. The silence at the dinner table gets louder. The small arguments stop feeling small. You look at the person you married and wonder how you both ended up here. I often hear from couples who say they never saw the crisis coming, even though, looking back, the signs had been there for a while. If you are in that place right now, I want you to know something important: a marriage in crisis is not the same as a marriage that is over. It is painful, yes. But pain is not the end of the road. It can be the beginning of something honest.
 
